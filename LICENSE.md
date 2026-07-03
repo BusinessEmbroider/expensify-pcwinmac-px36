@@ -1,4 +1,4 @@
-# 
+# Nuevo Expensify plugins para Mac OS | Gratuito Expensify plugins para PC Windows. Con edición de PDF y preparación de impuestos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
